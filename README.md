@@ -1,0 +1,6 @@
+# Student_data-![Screenshot (251)](https://github.com/ayushspn123/Student_data-/assets/78543116/8213ba4e-5116-424b-8f7a-7d592baa61d0)
+![Screenshot (252)](https://github.com/ayushspn123/Student_data-/assets/78543116/57162d16-61fc-4bbf-82c9-2c89ab01639d)
+![Screenshot (253)](https://github.com/ayushspn123/Student_data-/assets/78543116/90f85a6f-0939-44a6-8e2f-dd8f7cfcdf55)
+![Screenshot (254)](https://github.com/ayushspn123/Student_data-/assets/78543116/1f6ec594-bb4d-4b0f-a6e3-71694878d2ee)
+![Screenshot (255)](https://github.com/ayushspn123/Student_data-/assets/78543116/1bfa5b6d-2c67-495d-99d0-a8b59c82f3f0)
+![Screenshot 2023-10-29 045144](https://github.com/ayushspn123/Student_data-/assets/78543116/002adf84-eccc-4b4e-a449-ecaf3acdd4c3)
